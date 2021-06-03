@@ -11,4 +11,4 @@ For any query hit me up on:
 
 
 usmansyd738@gmail.com
-your prized suggestions will be considered welcoming.
+your suggestions will be considered welcoming.
