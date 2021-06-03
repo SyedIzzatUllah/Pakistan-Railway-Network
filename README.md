@@ -7,7 +7,7 @@ We visulized the collected data into many graphs:
 5.2) avg degree
 5.3) total nodes and vertex 
 5.4) and all the related basic anaylisis.
-For any query hit me up on:
+For any query hit me up at:
 
 
 usmansyd738@gmail.com
