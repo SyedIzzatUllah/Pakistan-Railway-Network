@@ -10,6 +10,6 @@ We visulized the collected data into many graphs:
 For any query hit me up at:
 
 
-usmansyd738@gmail.com
+*usmansyd738@gmail.com*
 your suggestions will be considered welcoming.
  
